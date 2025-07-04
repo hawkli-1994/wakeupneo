@@ -1,2 +1,1 @@
 # wakeupneo
-m1: F9637NxwjodxFe/JrpH7ihMIuDQ3xXLLr8hBXlCSPwr6+7MLrmJNpfJpGB4zUrM+C1jsRLLDSE2kcXlbKATV0f
